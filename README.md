@@ -1,0 +1,1 @@
+# Vision_computadora_181B2025_Menardi-Werner
